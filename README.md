@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @fefsveta
-- 👀 I’m interested in sociiology, psychology, teaching English,and desing
+- 👋 Hi, I’m SvetaFef
+- 👀 I’m interested in sociology, teaching English,and desing
 - 🌱 I’m currently learning Spanish 
 - 💞️ I’m looking to collaborate on canva
 - 📫 You can reach me via telegram or instagram @fefsveta 
